@@ -1,0 +1,2 @@
+# squadron-lords
+Investment
